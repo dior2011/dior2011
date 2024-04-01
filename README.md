@@ -1,4 +1,4 @@
-https://github.com/dior2011/dior2011/assets/158808796/bffda1de-516d-4844-9098-74e60debc1db
+![0401 (1)](https://github.com/dior2011/dior2011/assets/158808796/af729814-fdf0-44a9-9244-c08755196e34)
 
 - Welcome to my GitHub👋
 
